@@ -1,2 +1,2 @@
-### Olá! bem vindo ao meu perfil 👋
+### Olá! bem vindo ao meu perfil 
 
